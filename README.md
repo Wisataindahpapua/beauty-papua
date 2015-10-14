@@ -1,0 +1,2 @@
+# beauty-papua
+tourism 
